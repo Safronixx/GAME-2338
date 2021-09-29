@@ -1,0 +1,13 @@
+Game Review for Disco Elysium
+A very story driven isometric rpg game
+Disco Elysium
+https://www.google.com/url?sa=t&source=web&rct=j&url=https://store.steampowered.com/app/632470/Disco_Elysium__The_Final_Cut/&ved=2ahUKEwif94i5xJbzAhVSG80KHUZ2AhIQFnoECFsQAQ&usg=AOvVaw1BMrmnloBhyZ36cZ0UoHlm
+
+Rating
+5 out of 5
+
+Summary
+Disco Elysium is a fantastic game about a cop trying to figure out who he is. Literally. Your character gets so drunk one night that he wakes up without any recollection entirely of who he is. The game from then on involves figuring out who you are, where you are, and why you are where you are. Unfortunately you're new in town and you're investigating a grisly murder in a very unforgiving town. I find this game to be an unforgettable experience because the developers clearly just had fun with it, the writing is incredible and hilarious as well as the story to accompany it. Not to mention, the music and art style help immerse you in a floaty type of way, giving you the sense of being confused and trying to find answers along with your character. The music is beautiful and very cloudy in a sense. Coupled with the artistic style which is hard to describe besides being very vibrant with non distinct colors. The immersion is fantastic in this game and it is a one of a kind experience for this genre.
+
+Final Thoughts
+When it came to starting the game, I was immediately taken in by the writing and voice acting, both are done exceptionally well. The game starts on a black screen so the fact that it was able to do so much with words was insane. That just meant that when the music and art was incorporated finally that it was an all encompassing game right then and there. The kind you wanna play through all the way in one sitting. Now some criticism would be that there is no combat. I feel that this is simply answered by saying that it's just not that kind of game. There's plenty of isometric combat games like gauntlet, pillars of eternity and divinity original sin but Disco Elysium chose to go all in on story telling and it was one of the reasons it's so heavily acclaimed and loved already. With having to focus on how your character will handle situations between police work and social interactions which also involve parsing through lies and deception as well as being able to convince others, you'll find that you aren't able to succeed at a lot of things and the way that your character can bounce through any situation (albeit with very altered paths) speaks to the ingenuity of the developers and outlines why this game should be a picture perfect example of how story driven games of this nature ought to be.
